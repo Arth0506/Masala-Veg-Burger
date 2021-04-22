@@ -1,0 +1,1 @@
+The Masala Veg Burger is a classic homemade burger with all the normal ingredients along with some masala that enhances the taste of the burger and gives you a mouthwatering experience. The burger can be made by anyone, and it is a easy process that involves some cooking skill but it pays off in the end.
